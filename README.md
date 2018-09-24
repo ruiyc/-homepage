@@ -7,5 +7,3 @@
 邮箱ryc18210908216@sina.com
 
 
-      homepage/0001_副本.jpg
-    
